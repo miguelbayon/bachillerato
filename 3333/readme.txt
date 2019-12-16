@@ -1,1 +1,0 @@
-Creado por Miguel Bayón.
